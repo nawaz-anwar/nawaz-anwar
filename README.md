@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://github.com/nawaz-anwar" /> </p>
 
-- 📫 How to reach me **nzan576@gmial.com**
+- 📫 How to reach me **nzan576@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
